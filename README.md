@@ -10,4 +10,4 @@ Meu nome é Davi santos
 
 0000108514382Xsp@al.educacao.sp.gov.br
 
-![.](https://media1.tenor.com/m/E5EeEP6FC4QAAAAd/crying-cry.gif)
+![](https://media1.tenor.com/m/E5EeEP6FC4QAAAAd/crying-cry.gif)
